@@ -159,12 +159,12 @@ List of resources for those interested in kink/bdsm.
 ### Fiction Authors:
 
 - [Cherise Sinclair](http://cherisesinclair.com/) - Great BDSM Fiction Writer
-* [[Masters of the Shadowlands 1 - “Club Shadowlands”](http://www.amazon.com/gp/product/B003EYW1PG/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=B003EYW1PG&amp;linkCode=as2&amp;tag=b033b-20)
-* [[Masters of the Shadowlands 2 - “Dark Citadel”](http://www.amazon.com/gp/product/B003EYVYAE/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=B003EYVYAE&amp;linkCode=as2&amp;tag=b033b-20)
-* [[Masters of the Shadowlands 3 - “Breaking Free”](http://www.amazon.com/gp/product/1607376180/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1607376180&amp;linkCode=as2&amp;tag=b033b-20)
-* [[Masters of the Shadowlands 4 = “Lean on Me”](http://www.amazon.com/gp/product/1607377446/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1607377446&amp;linkCode=as2&amp;tag=b033b-20)
-* [[Masters of the Shadowlands 5 - “Make Me, Sir”](http://www.amazon.com/gp/product/1611183766/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1611183766&amp;linkCode=as2&amp;tag=b033b-20)
-* [[Masters of the Shadowlands 6 - “To Command and Collar”](http://www.amazon.com/gp/product/1611189837/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1611189837&amp;linkCode=as2&amp;tag=b033b-20)
+  * [Masters of the Shadowlands 1 - “Club Shadowlands”](http://www.amazon.com/gp/product/B003EYW1PG/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=B003EYW1PG&amp;linkCode=as2&amp;tag=b033b-20)
+  * [Masters of the Shadowlands 2 - “Dark Citadel”](http://www.amazon.com/gp/product/B003EYVYAE/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=B003EYVYAE&amp;linkCode=as2&amp;tag=b033b-20)
+  * [Masters of the Shadowlands 3 - “Breaking Free”](http://www.amazon.com/gp/product/1607376180/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1607376180&amp;linkCode=as2&amp;tag=b033b-20)
+  * [Masters of the Shadowlands 4 = “Lean on Me”](http://www.amazon.com/gp/product/1607377446/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1607377446&amp;linkCode=as2&amp;tag=b033b-20)
+  * [Masters of the Shadowlands 5 - “Make Me, Sir”](http://www.amazon.com/gp/product/1611183766/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1611183766&amp;linkCode=as2&amp;tag=b033b-20)
+  * [Masters of the Shadowlands 6 - “To Command and Collar”](http://www.amazon.com/gp/product/1611189837/ref=as_li_ss_tl?ie=UTF8&amp;camp=1789&amp;creative=390957&amp;creativeASIN=1611189837&amp;linkCode=as2&amp;tag=b033b-20)
 
 ## Extra:
 
