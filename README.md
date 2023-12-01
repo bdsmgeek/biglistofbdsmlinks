@@ -42,6 +42,7 @@ List of resources for those interested in kink/bdsm.
 ### Rope Related:
 
 * [ShibariStudy](https://shibaristudy.com/) - [Youtube](https://www.youtube.com/@ShibariStudy)
+* [The Dutchy Tutorials](https://www.theduchy.com/tutorials/) - [Youtube](https://www.youtube.com/@LazarusRedmayne)
 * [Be Knotty - Wiki](http://www.beknotty.com/wiki/index.php?title=Main_Page)
 * [How to Tie a Karada](http://www.symtoys.com/ideas_bondkar1.html)
 * [Rope &amp; Knots](http://www.ussartf.org/ropes_knots.htm)
